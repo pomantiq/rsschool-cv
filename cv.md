@@ -1,1 +1,2 @@
 Raman Zhauryd
+Belarus Minsk
